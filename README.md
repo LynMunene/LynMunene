@@ -61,7 +61,7 @@ I’m always open to:
 📩 Reach out via [LinkedIn](https://www.linkedin.com/in/lyn-munene/) or email me directly: gakiimunene20@gmail.com
 
 
-<p align="center">💖 dream ~vision ~actio  ✨</p>
+<p align="center">💖 dream ~vision ~action  ✨</p>
 
 
 
