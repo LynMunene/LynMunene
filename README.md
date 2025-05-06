@@ -8,7 +8,7 @@
   <a href="https://www.linkedin.com/in/lyn-munene/" target="_blank">LinkedIn</a> • 
   <a href="https://github.com/lynmunene">GitHub</a> • 
   <a href="mailto: gakiimunene20@gmail.com">Email</a> • 
-  <a href="https://lynmunene.wordpress.com/">Portfolio</a> j
+  <a href="https://lynmunene.wordpress.com/">Portfolio</a> 
 </p>
 ### 💬 About Me
 
